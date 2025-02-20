@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently looking for work<br>👯 I’m looking to collaborate on with other developers <br>🌱 I’m currently doing my last year of college <br>
+🔭 I’m currently looking for work<br>👯 I’m looking to collaborate with other developers <br>🌱 I’m currently doing my last year of college <br>
 
 
 ## 🌐 Socials:
